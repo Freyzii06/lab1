@@ -1,1 +1,1 @@
-https://zolkevskiu.github.io/typography/
+[(https://freyzii06.github.io/lab1/)
